@@ -1,0 +1,2 @@
+# premium-lid-paint-001-harpsichord-lid-painting-flemi
+Struggling to translate that intricate Flemish landscape vision onto the curved canvas of your harpsichord lid? Stop guessing and start planning with the only Notion template built for lid painting precision.  This planner transforms the daunting task of harpsichord lid painting into a manageable, step-by-step process. By organizing reference image
